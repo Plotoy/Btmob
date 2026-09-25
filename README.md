@@ -13,7 +13,7 @@ Available Version:- 4.6.1 and
 4.5.2 
 4.2
 4.1
-and all other versions also available
+and all other version also available.
 
 
 
