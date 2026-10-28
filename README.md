@@ -1,6 +1,6 @@
 Btmob-rat with source code with setup videos
 
-Btmob rat available in $10 Contact on telegram:-
+Btmob rat available start at $10 Contact on telegram:-
 https://t.me/Senzme
 
 Using Bot:- https://t.me/SenzmeBot
